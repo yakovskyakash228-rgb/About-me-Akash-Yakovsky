@@ -3,8 +3,9 @@
 yakovskyakash228@gmail.com
 akashyakovsky@outlook.com
 
-9398922197
-8978034212
++919398922197
+
++918978034212
 
 https://x.com/AkashYakovfl
 https://www.facebook.com/yakovskyakash228 
