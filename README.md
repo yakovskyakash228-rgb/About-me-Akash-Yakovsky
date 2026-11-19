@@ -18,3 +18,5 @@ https://goo.gl/maps/vWmyG5wuy8FWCB429?g_st=ac my residence
 https://www.apollohospitals.com/hospitals/apollo-hospitals-financial-district my and my future family hospital 
 
 https://www.hyatt.com/hyatt-hotels/en-US/hydhy-hyatt-hyderabad-gachibowli my administration and governance transition custom built environment palace hotel 
+
+sh https://x.com/udaykotak my administration and governance chief financier 
