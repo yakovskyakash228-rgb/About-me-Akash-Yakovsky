@@ -21,3 +21,5 @@ https://www.apollohospitals.com/hospitals/apollo-hospitals-financial-district my
 https://www.hyatt.com/hyatt-hotels/en-US/hydhy-hyatt-hyderabad-gachibowli my administration and governance transition custom built environment palace hotel 
 
 sh https://x.com/udaykotak my administration and governance chief financier 
+
+my national / state / territorial identity in all countries and territories in the following link https://en.wikipedia.org/wiki/List_of_countries_and_territories_by_the_United_Nations_geoscheme shared by me in this space by my https://m.rbi.org.in//home.aspx synchronisation 
