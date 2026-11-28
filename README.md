@@ -6,7 +6,6 @@ a3844543828@gmail.com
 akashyakovsky81@gmail.com
 yakovskyakash486@gmail.com
 a63538356@gmail.com
-akashyakovsky@tutamail.com
 
 +919398922197
 
