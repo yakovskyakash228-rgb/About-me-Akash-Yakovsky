@@ -25,4 +25,5 @@ sh https://x.com/udaykotak my administration and governance chief financier
 my national / state / territorial identity in all countries and territories in the following link https://en.wikipedia.org/wiki/List_of_countries_and_territories_by_the_United_Nations_geoscheme shared by me in this space by my https://m.rbi.org.in//home.aspx synchronisation 
 
 my convoy movement path for picking me up from the endpoint of the following link https://maps.app.goo.gl/G1aRuHndfACYhNdT9?g_st=ac
+
 my convoy movement path from my current temporary location to my administration and governance transition phase module https://maps.app.goo.gl/RLRWi2ckVFzj2mCR8?g_st=ac
